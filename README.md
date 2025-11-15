@@ -12,3 +12,5 @@ I'm also a moody person and it's hard for me to control my emotions but I'd try 
 I'm an artist!! l draw digitally and l love watching yt heh and uhh I'm so cool yea or wtv 
 
 ok bye gng
+
+Art cred: Shattereddankles
