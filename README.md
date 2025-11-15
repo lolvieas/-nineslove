@@ -1,3 +1,4 @@
+https://pin.it/6hxNQxecZ
 hii!!
  
  I'm cole . kai or Nicole! (wtv u want to call me)
